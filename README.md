@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @omgchamp
-- 👀 I’m currently working @ SupraMC
-- 📫 Reach me @harrison#0002 on Discord
+- 👀 I’m currently running @ SupraMC
+- 📫 Reach me @harrison#3333 on Discord
